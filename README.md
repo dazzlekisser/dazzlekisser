@@ -6,3 +6,6 @@
  </p>
 <hr>
 <p align="center">◜ ͡ ◟　　𓏼　　astro　　|།ིྀ ͝ he hym</p>
+<p align="center"><i>married</i>    ͝♪⌣ astro yumes <b>dni</b>. i love my husband, fuck you ^_* 　  ྐ✚　</p>
+<p align="center"> 𓉸ིྀ ͝ ། 　　　　LSI ISTP . 6w5 sx/sp 641　.  R[L]u/E/n mcT[W]dRg . Chol-Mel Lawful Evil　　 ͜͝ | ͜͝ | ͜͝      </p>
+<p align="center"> 𓏫 ˚ ੭     | ͜͝.  bpd ︵ ͜͜𓈒  <i>iwec.</i> ︶ྀི        ྀི𖡻 achillean , libramasc
